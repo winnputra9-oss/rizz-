@@ -1,0 +1,2 @@
+# rizz-
+atau bang
